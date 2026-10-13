@@ -1,11 +1,13 @@
-<img width="736" height="391" alt="1000018063" src="https://github.com/user-attachments/assets/0f682667-4100-47bf-97d6-6edd745a2743" />
+<img width="736" height="391" alt="1000018207" src="https://github.com/user-attachments/assets/dc80ace5-5995-4196-a1a3-4b84246c2a70" />
+
+
 
 
 
 <div align="center">
 
 
-***"you're just some criminal trash living in an attic!"***
+***"let me love you too, let me love you to death"***
 
 <div align="center">
  
@@ -44,10 +46,11 @@
 
 </details>
 
-![](https://komarev.com/ghpvc/?username=kissofdecay&color=8a3029&label=renlings)
+![](https://komarev.com/ghpvc/?username=kissofdecay&color=2b2e54&label=renlings)
 
 
-<img width="1280" height="125" alt="1000018070" src="https://github.com/user-attachments/assets/67dc599e-eee9-47ae-90ba-e0b493b4aee1" />
+<img width="1280" height="150" alt="1000018210" src="https://github.com/user-attachments/assets/af3e2a35-17d7-4d59-9380-c90dfc5ce9d3" />
+
 
 
 
