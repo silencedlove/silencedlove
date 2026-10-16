@@ -63,3 +63,18 @@
 <p align="center">
  
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=v38nmj7o7yc5rjb1771gfl5ch&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=171f57)](https://github.com/kittinan/spotify-github-profile)
+
+
+<p align="center">
+
+***^_^***
+
+<img width="250" height="140" alt="1000018271" src="https://github.com/user-attachments/assets/db689550-9d68-4aba-a4b9-8d4d9c89939f" />
+
+<img width="250" height="140" alt="1000018270" src="https://github.com/user-attachments/assets/c18f1e10-9afa-408f-aea1-9172058c121f" />
+
+<img width="220" height="169" alt="1000018269" src="https://github.com/user-attachments/assets/42ed8cc4-52db-4a31-9356-8b190230f75c" />
+
+<img width="220" height="140" alt="1000018267" src="https://github.com/user-attachments/assets/c00534e2-12ab-4d25-a037-0aabb00cd962" />
+
+
