@@ -1,4 +1,5 @@
-<img width="736" height="391" alt="1000018207" src="https://github.com/user-attachments/assets/dc80ace5-5995-4196-a1a3-4b84246c2a70" />
+<img width="736" height="391" alt="1000018289" src="https://github.com/user-attachments/assets/b8871e12-ccb7-4ac4-a796-80c011d3d890" />
+
 
 
 
@@ -7,7 +8,7 @@
 <div align="center">
 
 
-***"let me love you too, let me love you to death"***
+***"Hiding from the truth"***
 
 <div align="center">
  
