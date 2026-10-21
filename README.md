@@ -1,4 +1,5 @@
-<img width="736" height="391" alt="1000018289" src="https://github.com/user-attachments/assets/b8871e12-ccb7-4ac4-a796-80c011d3d890" />
+<img width="736" height="391" alt="1000018338" src="https://github.com/user-attachments/assets/64d94ac6-2608-4424-ac14-ac1d7c381a7d" />
+
 
 
 
@@ -8,7 +9,7 @@
 <div align="center">
 
 
-***"Hiding from the truth"***
+***"leave the past untouched"***
 
 <div align="center">
  
