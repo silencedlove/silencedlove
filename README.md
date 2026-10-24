@@ -1,4 +1,5 @@
-<img width="736" height="391" alt="1000018338" src="https://github.com/user-attachments/assets/64d94ac6-2608-4424-ac14-ac1d7c381a7d" />
+<img width="736" height="391" alt="1000018394" src="https://github.com/user-attachments/assets/53b89693-2659-48a4-a877-b51ea7b8c7ad" />
+
 
 
 
@@ -9,7 +10,7 @@
 <div align="center">
 
 
-***"leave the past untouched"***
+***(⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡***
 
 <div align="center">
  
