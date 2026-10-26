@@ -1,4 +1,4 @@
-<img width="736" height="391" alt="1000018394" src="https://github.com/user-attachments/assets/53b89693-2659-48a4-a877-b51ea7b8c7ad" />
+<img width="736" height="736" alt="1000018432" src="https://github.com/user-attachments/assets/798d087e-aa65-4730-a965-7fb1afc18f37" />
 
 
 
@@ -7,15 +7,12 @@
 
 
 
-<div align="center">
 
-
-***(⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡***
 
 <div align="center">
  
- [ata](https://shuichisaiharaa.atabook.org/) . 
-   [spage](https://kissofdecay.straw.page/)
+ [𝓐ta](https://shuichisaiharaa.atabook.org/) . 
+   [𝓢page](https://kissofdecay.straw.page/)
 
  </dv>
 
@@ -49,7 +46,7 @@
 
 </details>
 
-![](https://komarev.com/ghpvc/?username=kissofdecay&color=2b2e54&label=renlings)
+![](https://komarev.com/ghpvc/?username=kissofdecay&color=4a1515&label=renlings)
 
 
 <img width="1280" height="150" alt="1000018210" src="https://github.com/user-attachments/assets/af3e2a35-17d7-4d59-9380-c90dfc5ce9d3" />
@@ -66,18 +63,4 @@
 <p align="center">
  
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=v38nmj7o7yc5rjb1771gfl5ch&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=171f57)](https://github.com/kittinan/spotify-github-profile)
-
-
-<p align="center">
-
-***^_^***
-
-<img width="250" height="140" alt="1000018271" src="https://github.com/user-attachments/assets/db689550-9d68-4aba-a4b9-8d4d9c89939f" />
-
-<img width="250" height="140" alt="1000018270" src="https://github.com/user-attachments/assets/c18f1e10-9afa-408f-aea1-9172058c121f" />
-
-<img width="220" height="169" alt="1000018269" src="https://github.com/user-attachments/assets/42ed8cc4-52db-4a31-9356-8b190230f75c" />
-
-<img width="220" height="140" alt="1000018267" src="https://github.com/user-attachments/assets/c00534e2-12ab-4d25-a037-0aabb00cd962" />
-
 
