@@ -1,4 +1,5 @@
-<img width="736" height="377" alt="1000018488" src="https://github.com/user-attachments/assets/f4f09540-0569-4c46-91a5-262815a06862" />
+<img width="736" height="391" alt="1000018658" src="https://github.com/user-attachments/assets/1b817af9-cd82-4b27-a001-bdc788fce0fe" />
+
 
 
 
@@ -48,7 +49,7 @@
 
 </details>
 
-![](https://komarev.com/ghpvc/?username=kissofdecay&color=4a1515&label=renlings)
+![](https://komarev.com/ghpvc/?username=kissofdecay&color=422f63&label=renlings)
 
 
 <img width="1280" height="150" alt="1000018210" src="https://github.com/user-attachments/assets/af3e2a35-17d7-4d59-9380-c90dfc5ce9d3" />
