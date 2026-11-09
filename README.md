@@ -23,15 +23,15 @@
  <details>
   <summary> byi ! </summary>
 
- *13- dni, 18+ iwc, all usual dni (racist, homophobic, ableist, etc etc), I block freely but I don't block very often, if you manage to piss me off badly I will infact, block you very secretly*
+ *13- dni, 18+ iwc, all usual dni criteria (racist, homophobic, ableist, etc etc), I block freely but I don't block very often, but if you manage to really piss me off or any of my friends I will block you*
 
- *please refrain from joking about sensitive topics to me (death but not including kms jokes, any type of disease or my grades brah), I will immediately get myself out of the conversation because I am very easily effected and upset by those topics*
+ *please refrain from joking about sensitive topics to me (death but not including kms jokes, any type of disorder or disease), I will get myself out of the conversation because I am very easily effected and upset by those topics*
 
 
- *If I have iwc/iwec in my name or status it means I'm in a bad mood or angry/sad about something, worry not I don't bite but I can come off very dry and distant so beware when interacting during those times. if I have dniuf in my name it's pretty self explanatory*
+ *If I have iwc/iwec in my name or status it means I'm in a bad mood or angry/sad about something, worry not I don't bite but I can come off very dry and distant so beware when interacting during those times. if I have dniuf/dniucf/dniuid in my name it's pretty self explanatory*
 
  
- *please keep in mind that I have suspected audhd/ocd, so please be patient with me !! :)*
+ *keep in mind that I have suspected audhd/ocd, so please be patient with me !! :)*
   
 
 </details>
@@ -40,13 +40,13 @@
 <details>
   <summary>extra</summary>
 
- *I really like yapping. when I open my mouth boy it'll take a while before it closes 😳😳. I'm not very good at responding ok? so if you rant or vent I probably wouldn't have a good response most times, ok?*
+ *I really like yapping. when I open my mouth boy it'll take a while before it closes 😳😳. I'm not very good at responding so if you rant or vent I probably wouldn't have a good response most times, but I can always lend an ear anyway*
 
- *I'm also very awkward most of the time and get embarrassed easily, so we might be in silent silence until someone starts a convo.. and I might refrain from saying some things kay*
+ *I'm also very awkward most of the time and get embarrassed easily, so we might be in silence until someone breaks the ice or leaves*
 
  **shotout to all my cool friends and oomfs 👀**
 
- *< Moe, Yuki, Ren, Ira, May, Shio , Jamie and my two very ANNOYING but lovable siblings 😁😁 3*
+ *< Moe, Yuki, Ren, Ira, May, Shio , Jamie, Aru, c and my two very ANNOYING but lovable siblings + green names  😁😁 3*
 
 </details>
 
