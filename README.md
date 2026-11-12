@@ -44,6 +44,8 @@
 
  *I'm also very awkward most of the time and get embarrassed easily, so we might be in silence until someone breaks the ice or leaves*
 
+ *I don't copy or take inspo from others for my ponies, almost everything I make is done by myself with my imagination and usually a color palette. I also don't mind if you take inspiration from me #toononchalant*
+
  **shotout to all my cool friends and oomfs 👀**
 
  *< Moe, Yuki, Ren, Ira, May, Shio , Jamie, Aru, c and my two very ANNOYING but lovable siblings + green names  😁😁 3*
