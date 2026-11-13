@@ -44,7 +44,7 @@
 
  *I'm also very awkward most of the time and get embarrassed easily, so we might be in silence until someone breaks the ice or leaves*
 
- *I don't copy or take inspo from others for my ponies, almost everything I make is done by myself with my imagination and usually a color palette. I don't care if you take inspiration from me or copy me I've got bigger problems #toononchalant*
+ *I don't copy or take inspo from others for my ponies, almost everything I make is done by myself with my imagination and usually a color palette. I don't care if you take inspiration from me or copy me, just don't claim it as yours and go around saying I'm a copycat. I've got bigger problems in life anyway #toononchalant*
 
  **shotout to all my cool friends and oomfs 👀**
 
