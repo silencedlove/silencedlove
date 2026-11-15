@@ -24,6 +24,8 @@
  <details>
   <summary> byi ! </summary>
 
+  *I speak Georgian, English and though I cannot properly talk, I very much understand russian. I'm also learning German (⁠•⁠ ⁠▽⁠ ⁠•⁠;⁠)*
+
  *13- dni, 18+ iwc, all usual dni criteria (racist, homophobic, ableist, etc etc), I block freely but I don't block very often, but if you manage to really piss me off or any of my friends I will block you*
 
  *please refrain from joking about sensitive topics to me (death but not including kms jokes, any type of disorder or disease), I will get myself out of the conversation because I am very easily effected and upset by those topics*
