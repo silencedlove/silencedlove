@@ -16,7 +16,8 @@
 
 <div align="center">
  
- [𝓐ta](https://shuichisaiharaa.atabook.org/) . 
+ [𝓐ta](https://shuichisaiharaa.atabook.org/) ‎ 
+  ‎ 
    [𝓢page](https://kissofdecay.straw.page/)
 
  </dv>
