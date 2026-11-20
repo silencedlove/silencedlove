@@ -50,9 +50,9 @@
 
  *I don't copy or take inspo from others for my ponies, almost everything I make is done by myself with my imagination and usually a color palette. I don't care if you take inspiration from me or copy me, just don't claim it as yours and go around saying I'm a copycat. I've got bigger problems in life anyway #toononchalant*
 
- **shotout to all my cool friends and oomfs 👀**
+ **shotout to all the cool friends and oomfs I have met on here 👀**
 
- *< Moe, Yuki, Ren, Ira, May, Shio , Jamie, Aru, c and my two very ANNOYING but lovable siblings + green names  😁😁 3*
+ *< shio, Ren, Ira, Jamie, Aru, May  + green names  😁😁 3*
 
 </details>
 
