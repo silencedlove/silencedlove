@@ -59,7 +59,10 @@
 ![](https://komarev.com/ghpvc/?username=kissofdecay&color=385236&label=renlings)
 
 
-<img width="1280" height="150" alt="1000018210" src="https://github.com/user-attachments/assets/af3e2a35-17d7-4d59-9380-c90dfc5ce9d3" />
+<img width="296" height="65" alt="1000018900" src="https://github.com/user-attachments/assets/4cb10e33-af11-4b75-b137-585b4a620be1" />
+
+
+
 
 
 
